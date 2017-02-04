@@ -1,0 +1,2 @@
+# Killallthemethodofstudy
+以构建心理表征为导向的学习方法
